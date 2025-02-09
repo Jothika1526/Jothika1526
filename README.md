@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **jothika00015@gmail.com**
 
-- 📄 Know about my experiences [My Resume](https://github.com/Jothika1526/Jothika1526/blob/main/Resume.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
